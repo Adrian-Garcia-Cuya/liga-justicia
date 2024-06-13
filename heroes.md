@@ -9,3 +9,4 @@
 * Volcán Negro
 * Seint - seya
 * Saitama
+* Naruto
