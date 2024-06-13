@@ -7,3 +7,6 @@
 * Linterna Verde
 * Robin
 * Volcán Negro
+* Seint - seya
+* Saitama
+* Naruto
