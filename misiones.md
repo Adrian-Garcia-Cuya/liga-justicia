@@ -7,3 +7,4 @@
 6. Tratar de investigar que trama el Flash Reverso
 7. Buscar nuevos miembros para la liga
 8. Buscar a todos los patos del mundo.
+9. Interrogar a los teletubies.
